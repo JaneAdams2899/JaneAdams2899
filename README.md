@@ -8,3 +8,5 @@
 JaneAdams2899/JaneAdams2899 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Exipure is a Natural Weight Loss Supplement That Aims to Help Users Burn Fat Safely and Effectively.  
+Exipure is a weight loss supplement that uses the benefits of eight plant and herb extracts to increase the level of brown adipose tissue or BAT in your body. As mentioned earlier, BAT is a constant fat-burning furnace concealed inside every lean person. Several studies link BAT to weight loss because it can burn 300 times more calories than standard fat cells. https://www.exipureonline.com/sa-tsl
